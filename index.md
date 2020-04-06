@@ -28,5 +28,7 @@ A gap year is not a vacation, but just a period away from the classrooms, grades
 In that sense, many opportunities are waiting for you:
 
 1. **Discover your passion**: Are you interested in a particular work area? An entry-level job is a great way to see what to expect about a profession, and while you are inside, make sure to network. Build contacts, ask questions, and learn everything you can about a career trajectory in the field.
+
 2. **Get the money**: There is a value in taking the year to work, earn money, and save to do everything you dream. Finally, this is a life experience that you don't have by watching TV in the comfortable sofa of your parents' house.
+
 3. **Surpass your weaknesses**: When you lack resources, you must become more resourceful, so if you are shy, use your time to learn public speaking. What about traveling to a place where nobody speaks in your language, you 
