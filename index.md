@@ -44,8 +44,10 @@ In that sense, many opportunities are waiting for you:
 
 7. **Time for a break**: Until now, you have been following the rules, maybe it has been a stressful period, and you need a break to recharge your motivation. Don't be afraid about deciding never to go back to education. This statement is a misconception because, according to the American Gap Association, students who took a Gap Year did return to college within a year.
 
+
 In consequence, this is an invitation of self-discovery, life-changing exploration, and a unique chance to have the time to dip deep and uncover what you want most in your life.
 
 Believe me or not, after this experience, you will be full of energy and revitalized, with a significant focus on your future and more knowledgeable about yourself.
 
 Remember the fast passing of time. You are so young to start to have regrets, so enjoy this moment and try to make this world better for you and everyone.
+
