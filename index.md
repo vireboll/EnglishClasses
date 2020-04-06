@@ -38,9 +38,9 @@ In that sense, many opportunities are waiting for you:
 
 4. **Volunteering**: If you are motivated to live a valuable growing experience, volunteering in community, charity, a non-profit or activist group can help you to open your life perspective while you are working in something significant to you.
 
-5. **Hit the road**: Go for your trip of dreams. Participate in a program abroad, pick a destination based on your intended career, or pick a place based on your main motivations.
+5. **Hit the road**: Go for the trip of your dreams. Participate in a program abroad, pick a destination based on your intended career, or pick a place based on your main motivations.
 
-6. **Learn a new language**: Go for an immersive travel experience or if you can't travel, meet with foreign people. Learn about their cultures, characters, and differences. In a globalized world, idioms are the key to success in any field of work.
+6. **Learn a new language**: Go for an immersive travel experience or if you can't travel, meet with foreign people. Learn about their cultures, characters, and differences. In a globalized world, languages are the key to success in any field of work.
 
 7. **Time for a break**: Until now, you have been following the rules, maybe it has been a stressful period, and you need a break to recharge your motivation. Don't be afraid about deciding never to go back to education. This statement is a misconception because, according to the American Gap Association, students who took a Gap Year did return to college within a year.
 
